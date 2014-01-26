@@ -1,1 +1,1 @@
-Why Pay for Skype, When you can use Chats for Free at no cost!
+Why Pay for Skype Group Chating When you Can Chat for FREE! With Youtube Chat, It Will Save Your Problem.
